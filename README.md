@@ -1,1 +1,1 @@
-# chingunerdeneochir_T1A2# chingunerdeneochir_T1A2
+# chingunerdeneochir_T1A2
